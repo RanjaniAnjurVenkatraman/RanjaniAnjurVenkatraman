@@ -6,7 +6,7 @@ Conscientious and driven Information Systems graduate with 5+ years of solid IT 
 
 ⚡ My Favorite activities: ...
 
-:seedling: Plants<br>:game_die: Playing board games<br>:woman_cook: Cooking<br>:sparkles: Designing
+:seedling: Gardening<br>:game_die: Playing board games<br>:woman_cook: Cooking<br>:sparkles: Designing
 
 :arrow_forward: Looking forward to:
 
