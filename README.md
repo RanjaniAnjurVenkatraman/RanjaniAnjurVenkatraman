@@ -4,7 +4,7 @@
 
 Conscientious and driven Information Systems graduate with 5+ years of solid IT experience. Proven technical and leadership qualities in data analytics and management environments. Experienced in presenting to higher executive and collaboration across global teams. Proficient in Python, Pandas, R, SQL, Forecasting, Machine Learning algorithms and Data Visualization. Truly enjoy the process of storytelling the facts from data for informed decisions.
 
-⚡ Fun fact: ...
+⚡ My Favorite activities: ...
 
 :seedling: Plants<br>:game_die: Playing board games<br>:woman_cook: Cooking<br>:sparkles: Designing
 
