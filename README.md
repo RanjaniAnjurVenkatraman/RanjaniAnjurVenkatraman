@@ -1,4 +1,4 @@
-# Hi, I'm Ranjani! 👋🏼 👩🏽‍💻
+# Hi, I'm Ranjani! 👋🏼 
 
 💬 About me ...
 
